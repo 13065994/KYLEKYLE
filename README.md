@@ -1,7 +1,7 @@
 
-#       𝗞𝗬𝗟𝗘 𝗕𝗔𝗜𝗧-𝗜𝗧 𝗦𝗘𝗡𝗣𝗔𝗜
+##   gerald max bot
 
 
 Hey guys dont forget to follow me
-{https://www.facebook.com/kyleyukaro}
+{/www.facebook.com/100088249106822}
 All commands working one Goatbot v2
